@@ -1,10 +1,10 @@
-### Hi there 👋 I'm Lee Do-Hyeon, a _Mathematician for Mind_ from South Korea🇰🇷
+### Hi there 👋 I'm Lee Do-Hyeon, a _Mathematician for Mind_ from South Korea🇰🇷 ###
 
-### 🚣🏻 Cogito, ergo sum _ _René Descartes_
+### 🚣🏻 Cogito, ergo sum _ _René Descartes_ ### 
 "I" am an evidence of "consciousness" itself. A profound understanding of consciousness will play a crucial role in comprehending both myself and human nature. Furthermore, humanity is undergoing rapid transformation like never before. The core of this transformation is closely intertwined with AI technology, which discusses and deeply relates to human brain-mind-behavior. Consequently, a deep understanding of consciousness science will pave the way for more _efficient_ and _socially responsible_ AI technology. My goal is to explore the potential of more innovative and groundbreaking AI technology, based on an understanding of fundamental neuroscience theory; **Active Inference & Bayesian Mechanics**.
 
-### 🧘🏻‍♂️ The love of complexity without reductionism makes art; The love of complexity with reductionism makes science. _ _E. O. Wilson_
+### 🧘🏻‍♂️ The love of complexity without reductionism makes art; The love of complexity with reductionism makes science. _ _E. O. Wilson_ ###
 My endeavors are pursued through a multidisciplinary approach. I combine knowledge from various fields like **mathematics/philosophy**, **physics/psychology**, and **informatics/neuroscience** to investigate and analyze the essence of machine learning theory and theoretical neuroscience theory. Through this, I seek answers to questions such as the fundamental understanding of AI and Human Mind, proper utilization for societal contributions, and more.
 
-### 🪷 If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not. _ _Elon Musk_
+### 🪷 If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not. _ _Elon Musk_ ###
 I emphasize the societal applications of AI technology and aim to expand my influence and contribution through continuing research, analysis, and content sharing. Simultaneously, I aspire to contribute to scientific research and ethical issues like _hypnosis, expanded reality, future AI, animal consciousness, etc_, while achieving goals related to AI and social issues, national defense and security, and the influence of artificial consciousness(sentience) by predicting and addressing societal changes.
