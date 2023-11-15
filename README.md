@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Lee Do-Hyeon from South Korea🇰🇷
+### Hi there 👋 I'm Lee Do-Hyeon, a 𝕄𝕒𝕥𝕙𝕖𝕞𝕒𝕥𝕚𝕔𝕚𝕒𝕟 𝕗𝕠𝕣 𝕄𝕚𝕟𝕕 from South Korea🇰🇷
 
 ### 🚣🏻 Cogito, ergo sum _ _René Descartes_
 "I" am an evidence of "consciousness" itself. A profound understanding of consciousness will play a crucial role in comprehending both myself and human nature. Furthermore, humanity is undergoing rapid transformation like never before. The core of this transformation is closely intertwined with AI technology, which discusses and deeply relates to human brain-mind-behavior. Consequently, a deep understanding of consciousness science will pave the way for more _efficient_ and _socially responsible_ AI technology. My goal is to explore the potential of more innovative and groundbreaking AI technology, based on an understanding of fundamental neuroscience theory; **Active Inference & Bayesian Mechanics**.
