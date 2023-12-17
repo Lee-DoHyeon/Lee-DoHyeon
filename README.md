@@ -1,10 +1,14 @@
-### Hi there 👋 I'm Lee Do-Hyeon, a _Mathematician for Mind_ from South Korea🇰🇷 ###
+### Hi there 👋 I'm Lee Do-Hyeon from South Korea🇰🇷 ###
 
-### 🚣🏻 Cogito, ergo sum _ _René Descartes_ ### 
-I believe that "I" am the evidence of existence itself. A profound understanding of consciousness is crucial in comprehending both myself and human nature. Moreover, humanity is undergoing rapid transformation like never before. The core of this transformation is closely intertwined with AI technology, which discusses and deeply relates to human brain-mind-behavior. Consequently, a deep understanding of consciousness science will pave the way for more efficient and socially responsible AI technology. My goal is to explore the potential of more innovative and groundbreaking AI technology, based on an understanding of fundamental neuroscience theory; Active Inference & Bayesian Mechanics.
+I am affiliated with the [Republic of Korea Army](https://www.army.mil.kr/sites/army/index.do), serving as a [Research Officer for National Defense](https://www.rond.or.kr/CmsHome/MainDefault.aspx). I am currently assigned to the [Agency for Defense Development]() (Jun 2022 - May 2025). I earned a B.S. degree in Mathematics from [POSTECH](https://www.postech.ac.kr/eng/) in Feb 2022.
 
-### 🧘🏻‍♂️ The love of complexity without reductionism makes art; The love of complexity with reductionism makes science. _ _E. O. Wilson_ ###
-My endeavors are pursued through a multidisciplinary approach. I combine knowledge from various fields like mathematics/philosophy, physics/psychology, and informatics/neuroscience to investigate and analyze the essence of machine learning theory and theoretical neuroscience theory. Through this, I seek answers to questions such as the fundamental understanding of AI and Human Mind, proper utilization for societal contributions, and more.
+My research delves into the fascinating relationship between the **mind** and **body**, combining mathematics/philosophy, physics/psychology, and informatics/neuroscience. Utilizing the lens of theoretical neuroscience and probabilistic machine learning theory, my goal is to develop a responsible artificial sentient agent, making significant contributions to consciousness science and AI/robotics. Currently, I am immersed in understanding the synergy between theoretical neuroscience and machine learning theory, with the dream of shaping more efficient and responsible human-level AI agents.
 
-### 🪷 If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not. _ _Elon Musk_ ###
-I emphasize the societal applications of AI technology and aim to expand my influence and contribution through continuing research, analysis, and content sharing. Simultaneously, I aspire to contribute to scientific research and ethical issues like hypnosis, expanded reality, future AI, animal consciousness, etc, while achieving goals related to AI and social issues, national defense and security, and the influence of artificial consciousness (sentience) by predicting and addressing societal changes.
+Join me on [Twitter](https://twitter.com/Lead_The_World_), [LinkedIn](https://www.linkedin.com/in/dohyeon-lee-4793a6244), [YouTube](https://www.youtube.com/@leadh99), and [GitHub](https://github.com/Lee-DoHyeon) as we explore the fascinating realms of the mind and advance AI together!
+
+
+
+
+
+
+
